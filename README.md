@@ -26,4 +26,4 @@ Updated from web - Octobor 18 Updated from web - Octobor 18 Updated from web - O
 Updated from web - Octobor 19 Updated from web - Octobor 19 Updated from web - Octobor 19 Updated from web - Octobor 19 Updated from web - Octobor 19 Updated from web - Octobor 19
 Updated from web - Octobor 20 Updated from web - Octobor 20 Updated from web - Octobor 20 Updated from web - Octobor 20 Updated from web - Octobor 20 Updated from web - Octobor 20
 Updated from web - Octobor 21 Updated from web - Octobor 21 Updated from web - Octobor 21 Updated from web - Octobor 21 Updated from web - Octobor 21 Updated from web - Octobor 21
-Updated from web - Octobor 22 Updated from web - Octobor 22 Updated from web - Octobor 22
+Updated from web - Octobor 22 Updated from web - Octobor 22 Updated from web - Octobor 22 Updated from web - Octobor 22
