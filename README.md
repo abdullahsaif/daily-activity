@@ -8,4 +8,4 @@ Updated from web - Octobor 26 Updated from web - Octobor 26 Updated from web - O
 Updated from web - Octobor 27 Updated from web - Octobor 27 Updated from web - Octobor 27 Updated from web - Octobor 27 Updated from web - Octobor 27 Updated from web - Octobor 27
 Updated from web - Octobor 28 Updated from web - Octobor 28 Updated from web - Octobor 28 Updated from web - Octobor 28 Updated from web - Octobor 28 Updated from web - Octobor 28
 Updated from web - Octobor 29 Updated from web - Octobor 29 Updated from web - Octobor 29 Updated from web - Octobor 29 Updated from web - Octobor 29 Updated from web - Octobor 29
-Updated from web - Octobor 30 Updated from web - Octobor 30 Updated from web - Octobor 30 Updated from web - Octobor 30 Updated from web - Octobor 30
+Updated from web - Octobor 30 Updated from web - Octobor 30 Updated from web - Octobor 30 Updated from web - Octobor 30 Updated from web - Octobor 30 Updated from web - Octobor 30
